@@ -1,1 +1,6 @@
-# projekt2
+ksf,sjfj.fskjf.
+sfljsf
+fjlsefjs
+fselfksjef
+sjflsjflsjf
+sf
